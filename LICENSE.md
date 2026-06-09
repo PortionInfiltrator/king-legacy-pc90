@@ -1,4 +1,4 @@
-
+advanced king legacy Script is the best king legacy Script, featuring fly and silent aim. Safe and powerful for all your needs.
 
 
 
